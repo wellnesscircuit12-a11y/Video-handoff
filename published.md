@@ -7,3 +7,4 @@
 2026-11-12 | Sleepy girl mocktail: does tart cherry juice + magnesium help you sleep? | Inside Out | Does the Sleepy Girl Mocktail Really Work? #shorts | https://www.youtube.com/watch?v=PMIu8Ug90Do (private)
 2026-11-13 | Japanese walking vs the 10,000-steps rule | Inside Out | Is Japanese Walking Better Than 10,000 Steps? #shorts | https://www.youtube.com/watch?v=xpGp4jkOSdI (private)
 2026-11-14 | Ice baths after lifting: do they blunt muscle gains? | Inside Out | Do Ice Baths Kill Your Muscle Gains? #shorts | https://www.youtube.com/watch?v=27Q1Fi0TUtg (private)
+2026-11-15 | Electrolyte drinks: do healthy people need them? | Inside Out | Do You Really Need Electrolytes? #shorts | https://www.youtube.com/watch?v=5h0krIli4VI (private)
