@@ -9,3 +9,4 @@
 2026-11-14 | Ice baths after lifting: do they blunt muscle gains? | Inside Out | Do Ice Baths Kill Your Muscle Gains? #shorts | https://www.youtube.com/watch?v=27Q1Fi0TUtg (private)
 2026-11-15 | Electrolyte drinks: do healthy people need them? | Inside Out | Do You Really Need Electrolytes? #shorts | https://www.youtube.com/watch?v=5h0krIli4VI (private)
 2026-11-16 | Does cold weather cause colds? (viruses do, but cold air weakens nasal defenses) | Inside Out | Can Cold Weather Really Give You a Cold? #shorts | https://www.youtube.com/watch?v=w_5ypsQBuXo (private)
+2026-11-19 | 'Ferritin face' trend: can your face show low iron? (only a blood test can) | Inside Out | Is 'Ferritin Face' Real? #shorts | https://www.youtube.com/watch?v=cZOwU5-0weU (private)
